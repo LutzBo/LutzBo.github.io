@@ -20,3 +20,5 @@ Tyler Durden:
 > Alles was du besitzt, besitzt irgendwann dich.
 >
 > The things you own end up owning you.
+
+<img src="https://fishofgold.files.wordpress.com/2013/03/the-things-you-own-end-up-owning-you-tyler-durden-fight-club-quotes.jpg"/>
