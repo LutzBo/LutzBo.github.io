@@ -14,3 +14,9 @@ Tyler ist ein charismatischer Typ, der die Menschen in seiner Umgebung in seinen
 * gewalttätig
 * echter Kumpel
 * machistische Attitüde
+
+Tyler Durden:
+
+> Alles was du besitzt, besitzt irgendwann dich.
+>
+> The things you own end up owning you.
